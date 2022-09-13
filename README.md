@@ -1,2 +1,0 @@
-# Typora-img
-shiyongtupian shangchuan
